@@ -1,1 +1,1 @@
-# SKN_29
+# SKN29_Lecture
